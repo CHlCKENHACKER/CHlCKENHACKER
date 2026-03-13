@@ -1,14 +1,15 @@
-#<img width="736" height="696" alt="1000005161" src="https://github.com/user-attachments/assets/8e4f684c-c01f-4905-8d98-1efdc18f1ae9" />
+<img width="736" height="1011" alt="1000005277" src="https://github.com/user-attachments/assets/2b38a889-6e76-499e-a012-ad8cdbc1289b" />
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[response](https://docs.google.com/document/d/1pAM0uapyldPc3uGUIuPPIF-YewwD3QvbBZP1WVA9eZA/edit?usp=drivesdk)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[apology!!](https://docs.google.com/document/d/1fYCJCaVdS3rqvekKjoC4kibTludYtgO3gPUSxnoQsG4/edit?usp=drivesdk)<br>
 
-reworking on this github.
+007n7![1000005281](https://github.com/user-attachments/assets/dbf6b971-13a7-4212-bdd4-8019dac719b3) fict kin. ![1000005282](https://github.com/user-attachments/assets/589b956a-7552-4b2a-a5c5-48e176c092ac) + shed yume <br>
+ambivert &nbsp;&nbsp;![1000005283](https://github.com/user-attachments/assets/5a348815-2787-413b-9a0a-f275709e1a49) bisexual&nbsp;&nbsp; ![1000005278](https://github.com/user-attachments/assets/99e71109-8cb7-485f-b9ca-0f2c73c162b6) &nbsp;&nbsp;trans <br>
+![1000005280](https://github.com/user-attachments/assets/3aee119f-cea4-4194-9dc4-3d01f2ada073)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Seven&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;, &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; puppy&nbsp;&nbsp;&nbsp;![1000005279](https://github.com/user-attachments/assets/6c27d766-9b71-4ef4-b15e-ef93ffe34b54) <br>
 
-Vinestaff ![1000005067](https://github.com/user-attachments/assets/6fbfef98-9a54-4d98-81e7-34f3f14fa9fc) fictional kin !!![1000005066](https://github.com/user-attachments/assets/cda9fc34-b798-47d2-9f6f-ae2a598c723e) welc ^^ <br>
-![1000005069](https://github.com/user-attachments/assets/6c08bae5-ff4f-4569-b6fb-efe5a897b153) Micah&nbsp;&nbsp;,,&nbsp;&nbsp;&nbsp;Seven&nbsp;&nbsp;&nbsp;,,&nbsp;&nbsp;&nbsp;4teen.![1000005070](https://github.com/user-attachments/assets/fee443d0-ec14-4a3c-9d07-6cf6035f8826) <br>
-![1000005072](https://github.com/user-attachments/assets/37c5b11b-04df-4e0c-aa5c-f33df4a93434)
-&nbsp;&nbsp;single, bisexual , ambivert&nbsp;&nbsp;![1000005068](https://github.com/user-attachments/assets/0768ba1c-3318-4fbe-a829-e970e75a7643) <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![1000005071](https://github.com/user-attachments/assets/3141a2c3-edd6-453a-a7da-cc8b30e4901f) <br>
+IWC beacuse puppy is currently getting therapy!! don't be a big freak around puppy please I beg.
 
-<img width="736" height="736" alt="1000005073" src="https://github.com/user-attachments/assets/0b1fb41e-a7a2-4b3c-95c5-66afa9ee0e1f" />
+
+
+
+
