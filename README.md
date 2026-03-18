@@ -7,8 +7,7 @@
 ambivert &nbsp;&nbsp;![1000005283](https://github.com/user-attachments/assets/5a348815-2787-413b-9a0a-f275709e1a49) bisexual&nbsp;&nbsp; ![1000005278](https://github.com/user-attachments/assets/99e71109-8cb7-485f-b9ca-0f2c73c162b6) &nbsp;&nbsp;trans <br>
 ![1000005280](https://github.com/user-attachments/assets/3aee119f-cea4-4194-9dc4-3d01f2ada073)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Seven&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;, &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; puppy&nbsp;&nbsp;&nbsp;![1000005279](https://github.com/user-attachments/assets/6c27d766-9b71-4ef4-b15e-ef93ffe34b54) <br>
 
-IWC beacuse puppy is currently getting therapy!! don't be a big freak around puppy please I beg.
-
+struggling from emophilia too🤔🤔
 
 
 
